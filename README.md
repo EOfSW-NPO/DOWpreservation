@@ -48,4 +48,4 @@ All preservation activities are conducted in accordance with applicable data red
 ## Others
 If any of this content is accidently claimed as "recovered by DOWpreservation" please contact us as fast as possible through our new email; dowpreservation@outlook.com
 
-DOW5 will not have any "strict" names due to it being literally unsavable.
+DOW5 will not have any "strict" names due to it being sloppily sent to us.
